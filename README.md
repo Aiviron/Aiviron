@@ -1,3 +1,2 @@
-Hi
-
+Hey, have a good day.
 
